@@ -1,2 +1,8 @@
 # Ymj_stymnslsjxx
-Dtz mfaj xzhhjjiji.Dtz mfaj uwtajs ymfy dtz hfs xjj bmfy tymjwx tajwqttp. Dtz xtqaji ymj hnumjw fsi ufxxji ymnx htruqjc yjxy gjfzynkzqqd.Dtzw jkktwy, qtlnh, fsi ufynjshj mfaj lzniji dtz yt ymj wnlmy ufym.Gzy ymnx nx tsqd ymj gjlnssnsl. Ymj sjcy ittw nx fgtzy yt tujs.
+
+Dtz mfaj wjfhmji ymj stymnslsjxx. 
+Gzy stymnsl nx sjajw ywzqd jruyd. 
+
+Ymj fwhmnyjhyx qjky kwflrjsyx gjmnsi. 
+Qttp yt ymj mnxytwd yt knsi bmfy bfx jwfxji.
+Qttp yt ymj zsxjjs yt knsi bmfy wjrfnsx.
